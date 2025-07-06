@@ -167,5 +167,5 @@ In this final step:
 
 ---
 
-**Author:** Prakash Pandey  
-**LinkedIn:** [Prakash Pandey](https://www.linkedin.com/in/prakash-pandey-2827522b1/)
+**Author:** Rahul Singh Chouhan  
+**LinkedIn:** [Rahul Singh Chouhan](https://www.linkedin.com/in/rahul-singh-chouhan-5a7303270/)
